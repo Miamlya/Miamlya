@@ -1,5 +1,6 @@
-### Hi there 👋
+### U GONNA BE KILLED 🔪
 
+![MIAMLYA OFFICIAL PHOTO](https://media.giphy.com/media/14kwRD61ir8wW4/giphy.gif)
 <!--
 **Miamlya/Miamlya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 

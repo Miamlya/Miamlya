@@ -1,20 +1,16 @@
-> ### 🫵 YOU GONNA BE KILLED 🔪
->
->
-![MIAMLYA](https://media.giphy.com/media/ZCU3YxmmD8lh6savbB/giphy.gif)
 
-
-<!--
-**Miamlya/Miamlya** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+         )               (
+        / \  .-""""""-.  / \
+       (   \/ __    __ \/   )
+        )  ; / _\  /_ \ ;  (
+       (   |  / \  / \  |   )
+        \ (,  \0/ _ \0/  ,) /
+         \_|   /    \   |_/
+           | (_\____/_) |
+           .\ \ ---- / /.
+          {  \ `====' /  }
+         {    `.____.'    }
+          {              }
+           `"="="="="="`
+             let's play
+       
